@@ -5,4 +5,4 @@
 - Trịnh Đắc Thái
 - Trần Linh Nhi
 - Phạm Văn Phúc
-- Nguyễn Văn 
+- Nguyễn Văn Quang
